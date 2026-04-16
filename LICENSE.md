@@ -1,4 +1,4 @@
-
+Experience anime card collection like never before with anime card collection Script exclusive no cooldown esp, the #1 Script. Includes no cooldown
 
 
 ---
